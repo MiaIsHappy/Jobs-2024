@@ -1,4 +1,4 @@
-# Jobs Openings from Yutong
+# Jobs Openings
 I aim to gather all the job openings I come across, to assist others in identifying where to seek employment opportunities. As of my observation in July 2024, most job descriptions typically remain open for only 1-2 days, since companies can easily receive more than 1000 resumes. If you don't find a suitable job opening, you can sign up for job alerts to be notified of future opportunities that match your interests. Good luck, everyone! I hope you all succeed in finding a job that is a perfect fit for you. 
 
 # Job listing from VC
